@@ -1,1 +1,1 @@
-<img src="http://www.kbench.com/?q=node/185411">
+<img src="http://images.kbench.com:8080/kbench/article/2018_01/monster/1.jpg">
