@@ -1,1 +1,1 @@
-![블러드본](https://www.youtube.com/watch?v=JkFO40NWl14)
+![노예기사](https://i.ytimg.com/vi/9pS-o224chU/maxresdefault.jpg)
